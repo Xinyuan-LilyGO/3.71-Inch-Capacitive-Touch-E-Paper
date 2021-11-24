@@ -1,1 +1,1 @@
-# 3.71-inch-capacitive-touch-e-paper
+# 3.71-Inch-Capacitive-Touch-E-Paper
